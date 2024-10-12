@@ -1,4 +1,4 @@
-
+https://hyrppqd.com/aviator?mode=demo
 <div align="center">
 
 # Aviator Predictor
